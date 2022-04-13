@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nematovjavohir
-- 👀 I’m crazy about football
+- 👀 I’m crazy about learn new interesting things
 - 🌱 I’m currently learning english,Flutter Developing.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me +998 90 972 19 46
